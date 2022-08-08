@@ -1,5 +1,2 @@
 # Reading
 Book reports and insights
-hhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhh
-hhhhhhhhhhhhhhhhhhhhhhhh
